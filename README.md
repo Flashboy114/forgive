@@ -1,0 +1,2 @@
+# forgive
+AL-FUR'QAN 
